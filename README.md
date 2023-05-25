@@ -1,2 +1,2 @@
-20191903 nahyun
+20191903 nahyun kim
 Kookmin Univ.
